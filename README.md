@@ -1,2 +1,0 @@
-# NerdCraft
-NERDS!!!!!!!!
